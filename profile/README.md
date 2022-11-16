@@ -1,3 +1,3 @@
 # MinerDAO
 
-Hi, there. 💰
+Hi, Miner. 💰
